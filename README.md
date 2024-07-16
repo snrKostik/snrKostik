@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning **WEB-FullStack**,
 - 💞️ I’m looking to collaborate on **Sex**
 - 📫 How to reach me **without being murdered? IDK! But u can try it!**
-- 😄 Pronouns me like **"Idiot"**
+- 😄 Pronouns me like **"Idiot with most stuoidest humor in the world"**
 - ⚡ Fun fact: **Today I prevented an attempt at rape, murder, theft, torture, slavery. Are you asking me how? Self-control gentlemen... Self-control...**
 
 <!---
